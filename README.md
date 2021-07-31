@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @minsub
+- 👀 I’m interesting hackintosh
